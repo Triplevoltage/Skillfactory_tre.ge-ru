@@ -1,1 +1,1 @@
-# Skillfactory_tre.ge-ru
+# Skillfactory_tre.ge/ru
